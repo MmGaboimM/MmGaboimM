@@ -2,7 +2,7 @@
 - 👀 I’m interested in Games
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me Gabiza#4440 on Discord
+- 📫 How to reach me Gabiza#5178 on Discord
 
 <!---
 MmGaboimM/MmGaboimM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
